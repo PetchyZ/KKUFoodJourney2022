@@ -669,9 +669,9 @@ Love to impress you Instragram followers? Here are the places where you can take
 
 #### 10. ครัวสุพรรณณิการ์ บาย คุณยาย
 
-<img src="media/ครัวสุพรรณณิการ์ นาย คุณยาย.jpg" width="500"/>
+<img src="media/ครัวสุพรรณณิการ์ บาย คุณยาย.jpg" width="500"/>
 
-*อ้างอิงข้อมูลและภาพจาก:* [GrabFood](https://www.wongnai.com/restaurants/kruasupanniga)
+*อ้างอิงข้อมูลและภาพจาก:* [Wongnai](https://www.wongnai.com/restaurants/kruasupanniga)
 
 * อาหารไทย :thailand:
 * จานหลักราคาเริ่มต้นเพียง 120 บาท  :moneybag:
