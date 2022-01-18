@@ -671,7 +671,7 @@ Love to impress you Instragram followers? Here are the places where you can take
 
 <img src="media/ครัวสุพรรณณิการ์ นาย คุณยาย.jpg" width="500"/>
 
-*อ้างอิงข้อมูลและภาพจาก:* [GrabFood](https://food.grab.com/th/en/restaurant/steak-lung-dave-%E0%B8%AA%E0%B9%80%E0%B8%95%E0%B9%87%E0%B8%81%E0%B8%A5%E0%B8%B8%E0%B8%87%E0%B9%80%E0%B8%94%E0%B8%9F-%E0%B8%96%E0%B8%99%E0%B8%99%E0%B8%81%E0%B8%B1%E0%B8%A5%E0%B8%9B%E0%B8%9E%E0%B8%A4%E0%B8%81%E0%B8%A9%E0%B9%8C-delivery/3-CY4CHGAWC2KFTX)
+*อ้างอิงข้อมูลและภาพจาก:* [GrabFood](https://www.wongnai.com/restaurants/kruasupanniga)
 
 * อาหารไทย :thailand:
 * จานหลักราคาเริ่มต้นเพียง 120 บาท  :moneybag:
